@@ -1,1 +1,0 @@
-https://radic2682.github.io/tips/github%20&%20blog/2024/01/01/github_blog_cdn.html
